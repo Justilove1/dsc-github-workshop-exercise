@@ -13,7 +13,7 @@ University of Calgary[1].
 
 ## The Space
 
-Our centre boasts around 8 sq. feet[5] of research space located on
+Our centre boasts around 8000 sq. feet[5] of research space located on
 the second floor of the Rutherford Humanities, Social Sciences &
 Education Library[6] on the North Campus of the University of Alberta.
 Knowledgeable library staff are available to help visitors in the
